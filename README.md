@@ -1,1 +1,1 @@
-# 01-2025-Challenge
+# 30-Day Open Source Coding Challenge 🚀  
